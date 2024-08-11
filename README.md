@@ -1,5 +1,5 @@
 # 几个好用的免费+付费梯子推荐，手机电脑稳定访问油管推特等外网
-梯子推荐 PC/Mac/iPhone 好用梯子下载 海外加速器梯子 靠谱 iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子电脑梯子, PC 好用梯子工具, 推荐翻墙梯子软件,  靠谱的梯子,clash 梯子,shadowrocket 梯子,小火箭梯子,Google/YouTube/Facebook/Twitter等外网梯子
+梯子推荐 PC/Mac/iPhone 好用梯子下载 海外加速器梯子 靠谱 iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子电脑梯子, PC好用梯子工具, 推荐翻墙梯子软件,  靠谱的梯子,clash 梯子,shadowrocket 梯子,小火箭梯子,Google/YouTube/Facebook/Twitter等外网梯子
 
 **最近有好多朋友问老王有没有[好用稳定的梯子软件](https://reactchina.sxlcdn.com/t/topic/40257)可以帮助访问国外网站，付费或者免费的都行，主要就是网速快以及足够稳定，其实吧这事儿并没有大家想象的那么复杂！当然，根据自己的需求选择合适的翻墙方法是很重要的。很多人觉得翻墙只需要一个方法，但其实不然。**
 
